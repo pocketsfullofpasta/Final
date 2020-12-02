@@ -1,0 +1,1 @@
+Idejas kā māja, izpildījums kā šķūnis!
